@@ -1,1 +1,1 @@
-Hello world fuckers ex and
+Hello world
